@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @roughbites
 - 👀 I’m interested in literally everything electronics related (its too much!)
 - 🌱 I’m currently learning arch linux, ruby, python & C
-- 💞️ I’m looking to collaborate on anything! 
+- 💞️ I’m looking to collaborate on non-serious learning opportunities, preferably with no deadline.  
 - 📫 How to reach me: discord | roughbites
 - 😄 Pronouns: he/it
 - ⚡ Fun fact: 18 years old with learning difficulties. Also a furry & potential Therian. 
