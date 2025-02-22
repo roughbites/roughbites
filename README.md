@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on non-serious learning opportunities, preferably with no deadline.  
 - 📫 How to reach me: discord | roughbites
 - 😄 Pronouns: he/it
-- ⚡ Fun fact: 18 years old with learning difficulties. Also a furry & potential Therian. 
+- ⚡ simply the best.
 
 <!---
 roughbites/roughbites is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
